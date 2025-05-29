@@ -1,0 +1,1 @@
+특기는Programming 입니다.  
